@@ -6,16 +6,14 @@ My first project.
 **These cookies are my favorite dessert.**
 
 ![The Best Snickerdoodle Cookie Recipe. Soft and Chewy Snickerdoodle Cookies. The popular cinnamon-sugar soft and chewy sugar cookie recipe. A recipe that has been in the family for over 30 years! #snickerdoodle #snickerdoodles #snickerdoodlecookies #snickerdoodlecookie #cookie #cookies #christmascookies #christmascookies www.modernhoney.com](https://www.modernhoney.com/wp-content/uploads/2018/12/The-BEST-Snickerdoodle-Cookie-Recipe.jpg)
-**Prep Time:**
 
+ **Prep Time:**
 15  mins
 
 **Cook Time:**
-
 10  mins
 
 **Total Time:**
-
 25  mins
 
 **Course:**  Dessert
