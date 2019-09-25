@@ -52,3 +52,6 @@ My first project.
 5.  If time allows, wrap the dough and let refrigerate for 20-30 minutes. Roll into small balls until round and smooth. Drop into the cinnamon-sugar mixture and coat well. Using a [spoon](https://www.walmart.com/ip/Walco-1107-Length-7-In-Dessert-Spoon-Pack-of-24/361323514), coat for a second time, ensuring the cookie balls are completely covered. *To make flatter snicker-doodles, press down in the center of the ball before placing in the oven. This helps to keep them from puffing up in the middle.* 
     
 6.  Place on a [parchment paper-lined baking sheet](https://www.walmart.com/ip/Reynolds-Parchment-Paper-Baking-Sheets-22-Count-12x16in/36531884). Bake for 9-11 minutes. Let cool for several minutes on baking sheet before removing from the [pan](https://www.walmart.com/ip/Mainstays-Medium-Cookie-Pan/14913186).
+
+# Inspired By
+[Modern Honey](https://www.modernhoney.com/the-best-snickerdoodle-cookie-recipe/)
