@@ -32,7 +32,7 @@ My first project.
 -   2 3/4  cup [Flour](https://www.walmart.com/ip/Great-Value-Self-Rising-Flour-5-lb/10402992)
 -   1 1/2  teaspoon  [Cream of Tartar](https://www.walmart.com/ip/McCormick-Gourmet-All-Natural-Cream-Of-Tartar-2-62-oz/10535060)
 -   1/2 teaspoon  [Baking Soda](https://www.walmart.com/ip/Baking-Soda-4-oz-ZIN-524708/762839254)
--   1  teaspoon  Salt
+-   1  teaspoon  [Salt](https://www.walmart.com/ip/2-pack-Great-Value-Iodized-Salt-26-oz/373932397)
 
 **Cinnamon-Sugar Mixture:**
 
@@ -45,7 +45,7 @@ My first project.
     
 2.  In a large [mixing bowl](https://www.walmart.com/ip/Crestware-1-1-2-qt-Stainless-Steel-Mixing-Bowl-Silver-Stainless-Steel-MB01/460524583), cream butter and sugar for 4-5 minutes until light and fluffy. Scrape the sides of the bowl and add the [eggs](https://www.walmart.com/ip/Marketside-Organic-Cage-Free-Brown-Eggs-Large-12-count-24-oz/48319448) and vanilla. Cream for 1-2 minutes longer.
     
-3.  Stir in flour, cream of tartar, baking soda, and [salt](https://www.walmart.com/ip/2-pack-Great-Value-Iodized-Salt-26-oz/373932397), just until combined.
+3.  Stir in flour, cream of tartar, baking soda, and salt, just until combined.
     
 4.  In a small bowl, stir together sugar and cinnamon.
     
